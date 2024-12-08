@@ -2,6 +2,7 @@
 # "BEAM" – Battery Efficiency and AI Motor Optimization
 
 ![Imobilothon final logo white-01](https://github.com/user-attachments/assets/001da05b-7826-43e6-b13a-109afc08d02a)
+![IMG-20241205-WA0061](https://github.com/user-attachments/assets/793a52d7-b021-44b3-aa91-03cd9463186c)
 
 
 
